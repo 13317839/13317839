@@ -1,0 +1,4 @@
+- 👋 Hi, I’m TaKe
+- 👀 I’m interested in Accounting,Coding,Language of Japanese and English.
+- 🌱 I’m currently learning about these things.
+--->
